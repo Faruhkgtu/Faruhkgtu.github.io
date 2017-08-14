@@ -1,0 +1,2 @@
+# Faruhkgtu.github.io
+Главный
